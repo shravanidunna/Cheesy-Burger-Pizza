@@ -1,5 +1,5 @@
-1.Active Dry Yeast (1tbsp)
-2.Sugar (3tbsp)
+1. Active Dry Yeast (1tbsp)
+2. Sugar (3tbsp)
 3.Warm Water (1cup)
 4.Oil (1/4cup)
 5.Salt (2tsp)
