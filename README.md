@@ -1,0 +1,1 @@
+Made with ground potatoes and topped with classic ketchup-mustard burger sauce, provolone and cheddar cheeses, bacon, tomatoes, and onions, Cheesy Burger Pizza is everything a burger lover dreams of — only sitting atop a perfectly cooked crust instead of between two halves of a bun.
